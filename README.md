@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @immortallovetv
+- 👀 I’m interested in ladies
+- 🌱 I’m currently learning how to communicate
+- 💞️ I’m looking to collaborate on minecraft
+- 📫 How to reach me github dms
